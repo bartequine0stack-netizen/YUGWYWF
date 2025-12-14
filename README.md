@@ -1,6 +1,6 @@
 
 //
-# <div class="react-directory-truncate"><a title="c0dec__________________________c0dec" aria-label="c0dec__________________________c0dec, (File)" class="Link--primary" href="/bartequine0stack-netizen/YUGWYWF/blob/wcadg_model0llm/c0dec__________________________c0dec" data-discover="true">c0dec__________________________c0dec</a></div>= double codec line.
+# <div class="react-directory-truncate"><a title="c0dec__________________________c0dec" aria-label="c0dec__________________________c0dec, (File)" class="Link--primary" href="/bartequine0stack-netizen/YUGWYWF/blob/wcadg_model0llm/c0dec__________________________c0dec" data-discover="true">c0dec__________________________c0dec</a></div>= double codec line.link in A.:... LAGUAGE n0 License available. Just code.
 \\
 # YUGWYWF
 Got it. or Not
